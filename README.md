@@ -13,7 +13,7 @@
 1 komkommer
 3 bosuien
 2 eetrijpe avocado's
-2 tl zwart sesamzaad
+2 tl zwart sesamzaad..
 
 ### Bereiding
 1.  Kook de rijst volgens de aanwijzingen op de verpakking. Roer ⅔ van de rijstazijn door de rijst als deze nog warm is. Laat de rijst in 1 uur afkoelen op een grote platte schaal.
